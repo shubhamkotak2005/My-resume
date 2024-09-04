@@ -1,1 +1,1 @@
-# [My-resume](https://kotak69.github.io/My-resume/)
+# [My-resume](https://shubhamkotak2005.github.io/My-resume/)
